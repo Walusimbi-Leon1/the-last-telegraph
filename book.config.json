@@ -1,0 +1,21 @@
+{
+  "title": "The Last Telegraph",
+  "subtitle": "A Novel",
+  "genre": "Historical fiction",
+  "author": "Walusimbi Leon",
+  "description": "In 1942, a young wireless operator in a coastal East African port intercepts a coded message that could change the course of the war \u2014 and a forbidden love with the woman who delivers the cables.",
+  "style": "Period, atmospheric, close third-person. Detailed sensory prose; the hum of valves, the salt of the harbor, the weight of unsaid words.",
+  "characters": "Yusuf \u2014 24, wireless operator, quiet and watchful; Amina \u2014 telegraph clerk, sharp, wary, secretly literate in three languages.",
+  "setting": "A British-administered port on the Indian Ocean, 1942.",
+  "notes": "Open with Yusuf on the night shift. Establish the monotony, the war's distant rumor, then the anomalous message. Build slow-burning tension between duty and the woman at the counter.",
+  "chapterTitle": "Chapter",
+  "mdFiles": [
+    "v2.0/book.md"
+  ],
+  "htmlFiles": [
+    "v2.0/book.html"
+  ],
+  "indexInject": null,
+  "mdHeadingLevel": 3,
+  "targetWords": 2000
+}
