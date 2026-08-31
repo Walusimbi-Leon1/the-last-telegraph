@@ -164,6 +164,80 @@ He stood, checked that the logbook was in order, and walked out into the heat of
 
 Tuesday was two days away.
 
+### Chapter 4 — The Man Who Does Not Eat Fish
+
+The heat of the day was a physical weight, pressing down on the tin roofs and the dusty streets, and Yusuf walked through it with the folded paper burning against his chest. He did not go home. Home was a rented room above a tailor's shop, a narrow space with a cot and a washstand and a window that looked out onto a courtyard where a mango tree grew. It was a place to sleep, nothing more. The thought of lying on that cot, staring at the ceiling, with the cipher in his pocket and the image of Amina's face in his mind, was unbearable. Instead, he walked.
+
+The port was a labyrinth of wharves and warehouses, streets that narrowed into alleys and opened into squares, and he knew it the way he knew the dials of his receiver — by touch, by habit, by the accumulated weight of years. He had grown up here, in the shadow of the harbor, the son of a dhowsailor who had died before Yusuf could remember his face. His mother had worked as a laundress for the British officers, and it was one of those officers, a man with a kind face and a weakness for gin, who had taught Yusuf the Morse code. "A skill," the officer had said, "that will take you anywhere in the world." He had been half right. It had taken Yusuf to a windowless room with a receiver and a logbook, in the same port where he had been born.
+
+He crossed the market square, where the fish stalls were already being hosed down, the silver scales running in rivulets toward the gutters. The dhows were at anchor in the inner harbor, their lateen sails furled, their hulls painted with eyes to ward off evil. The stevedores were loading a cargo of gum arabic onto a freighter flying the flag of the Netherlands East Indies — though the flag was a fiction, the ship a British prize, the cargo destined for the war effort. The war was everywhere, if you knew where to look. It was in the barbed wire that had been strung along the beach, in the sandbagged emplacements at the harbor mouth, in the patched hulls of ships that had survived the Atlantic run and were now being pressed into service on this quieter ocean. But the war was also a rumor, a distant thunder that most people heard only in the newspapers, and the port went about its business as if the conflict were someone else's concern.
+
+Yusuf found a tea shop at the edge of the dhow harbor, a place of rickety tables and enamel cups, where the old men gathered to argue about prices and politics. He ordered a cup of chai and sat in the shade of a striped awning, watching the water glint in the sun. The tea was sweet and strong, scalding his tongue, and he drank it slowly, letting the heat of it anchor him. He took out the paper and unfolded it on the table, though he knew the groups by heart now — the sequences of five letters that had burned themselves into his memory like a brand.
+
+He had no codebook. The training manual had mentioned the German diplomatic system only in passing, in a section marked *For Officer Reference Only*, and the instructor had skipped it with a cough and a change of subject. But Yusuf had a mind for patterns, for the rhythms that underlay chaos, and the more he looked at the groups, the more certain he became. This was not a naval cipher. It was not the double-transposition of the army. It was something older, more elegant, more sinister — a system that had been refined in the chancelleries of Berlin and was now being used, in this obscure corner of the Indian Ocean, to send a message that no one was supposed to read.
+
+He folded the paper and returned it to his pocket. The tea was finished. The old men were arguing. The gulls were crying over the offal in the gutters. And Tuesday was still two days away.
+
+---
+
+He did not sleep that night. He lay on his cot in the room above the tailor's shop, listening to the sounds of the courtyard — the chickens, the neighbor's radio playing music from Cairo, the distant hoot of a ship's siren — and he thought about Amina. He had known her for a year, ever since she had been transferred to the telegraph office from Mombasa, and in all that time he had never quite known what to make of her. She was efficient, almost to the point of severity, and she had a way of looking at him that suggested she saw more than he wanted to reveal. He had told himself that she was just a colleague, a woman who happened to work in the same office, and that the flash of something he felt when she looked at him was nothing more than the natural response of a lonely man to a woman who was not indifferent to him. But now, in the dark, he admitted the truth. He had been watching her for months. And she had been watching him.
+
+She knew who he was, he realized. She knew the kind of man he was — the kind who listened to the airwaves, who heard the whispers of the world and kept them to himself. And when the cipher had come through, she had known, in the space of a heartbeat, that it was the kind of thing he would not report. She had read him the way he read the signals.
+
+The next day passed in a blur. He went to the office, filed his reports, nodded at the relief operator, and left. He did not go to the telegraph counter where Amina sat. He was afraid that if he did, he would see something in her eyes — an expectation, a warning — that would make the waiting unbearable. Instead, he walked the length of the harbor, from the naval pier to the fishing village at the far end, and he told himself he was being careful. He was being prudent. He was doing what any sensible man would do.
+
+But he knew, even as he told himself these things, that the real reason he was walking was that he could not stop thinking about the man who bought fish he did not eat.
+
+---
+
+Tuesday came slowly, the way such days do, each hour dragging its feet through the sand. Yusuf woke early, before the first call to prayer, and washed in the basin with water that was still cool from the night. He dressed carefully — clean shirt, pressed trousers, shoes that he had polished the evening before — and he studied himself in the cracked mirror above the washstand. He looked, he thought, like a man who was going to meet a woman. He was going to meet a man who bought fish he did not eat.
+
+The fishing harbor was at the south end of the port, a crescent of sand protected by a breakwater of coral blocks. The dhows came in at dawn, their holds silver with the night's catch, and by mid-morning the beach was a chaos of nets and baskets and shouting. The buyers came from the hotels and the restaurants and the big houses on the hill, and they haggled with the fishermen in a mixture of Swahili and Arabic and English, their voices rising and falling like the gulls.
+
+Yusuf arrived at nine, when the catch was at its peak and the beach was crowded with buyers. He bought a cup of coffee from a vendor and stood at the edge of the crowd, watching. He did not know what he was looking for, exactly — a man who was not eating fish, a man who asked questions about neutral ships, a man who paid in silver rupees that were not old enough to be honest. It was not much to go on, but it was something.
+
+He waited. The sun climbed higher. The crowd thinned. The fishermen packed up their nets and their baskets and went home. And then, when the beach was nearly empty, a man appeared at the far end of the harbor, walking slowly along the waterline, his hands in his pockets.
+
+He was not a local. That much was clear from his clothes — a linen jacket, a hat with a brim, shoes that had been made for a European street, not a sandy beach. He stopped at the last dhow, the one that was still unloading, and he said something to the captain. They spoke for a moment, and then the captain shrugged and gestured at a pile of fish on the sand. The man looked at them, as if he were considering a purchase, and then he shook his head and walked on.
+
+He was not eating fish. He was not buying fish. He was doing exactly what Amina had described — walking the beach, asking questions, paying attention.
+
+Yusuf finished his coffee and set the cup down on an upturned crate. He waited until the man had passed him, moving toward the breakwater, and then he followed.
+
+The beach ended at the breakwater, a wall of coral blocks that extended into the sea like a crooked finger. The man walked along the top of it, unhurried, and Yusuf followed at a distance that he hoped was close enough to be useful but far enough to be safe. The waves crashed against the other side, sending spray over the blocks, and the salt coated his lips and his skin.
+
+The man stopped at the end of the breakwater, where the wall turned back toward the harbor, and he looked out at the water for a long moment. Then he turned and looked directly at Yusuf.
+
+He was not the kind of man you noticed twice. His face was ordinary, the kind of face that you would forget as soon as you turned away. But his eyes were not ordinary. They were pale, almost colorless, and they looked at Yusuf with a calm that was more disturbing than anger would have been.
+
+"You have been following me," the man said. His accent was hard to place — English, but with something underneath it, a roughness that suggested he had learned the language in a place where English was not the mother tongue.
+
+Yusuf said nothing. The man smiled, a thin expression that did not reach his eyes.
+
+"I am flattered," he said. "But I am not the kind of man who is worth following." He took a step closer, and Yusuf saw that his shoes were wet from the spray, and that there was a line of salt on his trousers where the waves had reached him. "Unless, of course, you have heard something. Something that made you curious."
+
+Yusuf's heart was beating hard, but he kept his voice steady. "I have heard that you buy fish," he said. "But you never eat it."
+
+The man's smile did not change. "A fair observation," he said. "I buy fish for my cat. A very hungry cat." He paused. "Is that why you followed me? To ask about my cat?"
+
+Yusuf shook his head. "I followed you because I wanted to know who you are."
+
+"And now you know." The man spread his hands. "I am a man who buys fish for a hungry cat. A very ordinary man, in a very ordinary place." He looked at Yusuf for a long moment, and then he said, "But you, I think, are not ordinary. You are the wireless operator at the telegraph office. The one who works the night shift."
+
+The words hit Yusuf like a slap. He had not expected to be known, not by this man, not here on the breakwater with the spray in his face. He tried to keep his expression neutral, but something must have shown, because the man laughed — a short, dry sound, like a stone skipping across water.
+
+"Do not look so alarmed," the man said. "I know many things. I know that you received a message on Saturday night. A message that was not logged in the official record. I know that you kept it, instead of reporting it." He stepped closer, and his voice dropped. "I know that it was addressed to me."
+
+The word *addressed* hung in the air between them. Yusuf felt the folded paper in his pocket, heavy as lead. He said nothing.
+
+The man looked at him for a long moment, and then he nodded, as if he had reached a decision. "You are wondering who I am," he said. "Let me tell you. I am a man who works for a shipping company in Lisbon. I am a man who is very interested in the cargoes that pass through this port — the copra, the hides, the gum arabic. I am a man who pays well for information." He paused. "And I am a man who has a message to send."
+
+Yusuf's mouth was dry. "To Lisbon?"
+
+"To Lisbon," the man agreed. "To a contact there. A message that is very important, to people who are very powerful." He looked at Yusuf with those pale, colorless eyes. "I have been looking for someone who can send it for me. Someone with access to a transmitter, and the skill to use it. Someone who is not afraid to keep a secret." He tilted his head. "Someone like you."
+
+The waves crashed against the breakwater. The gulls screamed. And Yusuf stood on the wet coral, with the man's words ringing in his ears, and he knew that everything had changed.
+
 ---
 
 ## About This Book
