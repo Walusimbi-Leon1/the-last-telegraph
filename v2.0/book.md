@@ -238,6 +238,80 @@ Yusuf's mouth was dry. "To Lisbon?"
 
 The waves crashed against the breakwater. The gulls screamed. And Yusuf stood on the wet coral, with the man's words ringing in his ears, and he knew that everything had changed.
 
+### Chapter 5 — The Weight of Silver
+
+The silence between them was not empty. It was filled with the crash of waves, the cry of gulls, the distant hammering from the boatyard — and beneath all of that, the humming tension of a decision that Yusuf had not yet made but was already being pulled toward, as surely as the tide pulled at the coral blocks beneath his feet.
+
+"I don't know what you're talking about," he said.
+
+The man's smile was patient, almost kind, which made it worse. "You are a bad liar," he said. "That is a good thing, in most circumstances. But it means we must be careful with you." He took a step back, giving Yusuf room, as if he were a horse that might bolt. "I will not ask you to decide now. I will not ask you to decide here. But I will tell you this: the message you received on Saturday night is a beginning, not an end. There will be others. And when you are ready to send one — on your own terms, in your own time — you will find me at the coffee house near the Customs House, on the third day of each week, between the hours of four and six." He paused. "I sit by the window. I drink coffee I do not finish. I look at the harbor, and I wait."
+
+He turned and walked back along the breakwater, his shoes leaving wet prints on the coral, and Yusuf watched him go. The man did not look back. He reached the beach, crossed it with the unhurried stride of a man who had nowhere to be, and disappeared into the narrow streets that led up toward the town.
+
+Yusuf stood on the breakwater for a long time after he had gone. The sun was high now, and the spray had dried on his skin, leaving a fine white dust of salt. He reached into his pocket and touched the folded paper — the message, still unread, still burning against his thigh like a coal. He had not told the man that he had not read it. He had not told the man that he did not know what it said. And he had not told the man that Amina had given it to him, and that she had known its weight before he did.
+
+He walked back through the town with his hands in his pockets, his eyes on the ground. The streets were busy now, full of carts and bicycles and women with baskets on their heads, and the noise of the market rose around him like a wall. But he heard none of it. He was thinking about the man's eyes, the pale color of sea glass, and the way they had looked at him with such calm certainty. He was thinking about the message in his pocket, the words he had not yet read. And he was thinking about Amina, and the way she had said *You saw the date* — as if the date itself were a confession.
+
+He did not go home. He went to the mosque for the midday prayer, and he stayed longer than he usually did, sitting in the cool shade of the courtyard with his back against the wall. The call to prayer had been made, the faithful had come and gone, and now the courtyard was empty except for an old man who swept the stones with a broom of bound twigs. Yusuf watched him, the slow rhythm of the sweeping, the way the dust rose and settled in the slanting light.
+
+He had been raised in this town, in a house that smelled of cardamom and kerosene, by a mother who had taught him to read the Quran before he had learned his letters in English. His father had been a clerk in the harbor office, a quiet man who had kept his head down through the wars and the rumors of wars, and who had died of fever when Yusuf was sixteen. He had left his son a small inheritance: a set of brass scales, a prayer rug, and the advice that a man who listened more than he spoke would never starve.
+
+Yusuf had listened. He had listened to the valves of the transmitter, to the crackle of atmospherics, to the coded chatter of ships and stations and men who were never where they said they were. He had listened so carefully that he had learned to hear the silences between the words, the gaps where something important was being hidden. And now he had been asked to listen to a different kind of silence — the silence of a man who bought fish he did not eat, and who knew things he should not have known.
+
+He reached into his pocket and took out the folded paper. The seal was still intact — a blob of red wax, pressed with a signet that he did not recognize. He turned it over in his fingers. The paper was thick, good quality, the kind that came from a stationer's shop in Mombasa or Dar es Salaam. He could break the seal. He could read the words. And once he had read them, he would no longer be a man who had merely received a message. He would be a man who knew what it said.
+
+He put it back in his pocket.
+
+The old man with the broom had finished his sweeping. He paused at the gate, looked at Yusuf for a moment, and nodded — the kind of nod that acknowledged a fellow worshipper without demanding conversation. Then he was gone, and Yusuf was alone in the courtyard with the sound of the wind in the date palms.
+
+He walked home through the back streets, avoiding the harbor road, avoiding the coffee house near the Customs House. He did not want to see the man again, not yet. He did not want to be tempted. He wanted to think, and he wanted to think somewhere that smelled of his mother's cooking and his father's old tobacco pipe, somewhere that was his.
+
+But his house was empty, and the smell of cardamom had faded years ago, and the tobacco pipe sat on the shelf above the door like a relic of a life that had ended. He stood in the middle of the room and looked at the things that were his — the transmitter, the books, the bed, the table — and he felt, for the first time in his life, that they were not enough. That he was not enough. That the world was bigger and stranger than he had ever imagined, and that he had been living in a small corner of it, counting his days in the hum of valves and the clatter of keys.
+
+He sat down at the table and took out the message again. He did not break the seal. He placed it in front of him, on the scarred wood where his father had once kept his ledgers, and he looked at it as if it might speak to him.
+
+It did not.
+
+The afternoon wore on. The light through the window shifted from white to gold, and the sounds of the street changed — the vendors going home, the children being called in, the first murmur of the evening call to prayer. Yusuf sat with his hands flat on the table, the message between them, and he did not move.
+
+When the knock came at the door, he was not surprised. He had been expecting it, in a way — expecting her, the woman who had delivered the message that had changed everything. He rose and opened the door, and there she was.
+
+Amina stood in the doorway with the evening light behind her, turning her hair to a dark halo. She was not wearing her uniform. She was wearing a dress he had never seen before, a deep blue that matched the sea at dusk, and she had a shawl wrapped around her shoulders. She looked at him with those sharp, wary eyes, and she said, "You followed him."
+
+It was not a question.
+
+"Yes," he said.
+
+"And he knew who you were."
+
+"Yes."
+
+She nodded, as if she had expected this too. "He knows everything," she said. "That is what he does. That is what he is for." She stepped past him, into the room, and she did not ask permission. She walked to the table and looked at the message, still sealed, still waiting. "You have not opened it."
+
+"No."
+
+"Good." She turned to face him. "Because if you open it, you will have to act. And if you act, you will be in danger. And if you are in danger, I will be in danger. And I am not ready to be in danger." She paused. "Not yet."
+
+Yusuf closed the door. The room was smaller with her in it, closer, the air thicker. He could smell her — soap, and something else, something like cloves. "Why did you give it to me?" he asked. "If you knew it was dangerous. If you knew it would lead to this."
+
+She looked at him for a long moment. The wariness in her eyes softened, just slightly, and he saw something beneath it — something tired, something careful, something that had been waiting a long time to be seen.
+
+"Because you were the only one who would not report it," she said. "Because you are the only one in that office who pays attention to what the messages do not say." She took a step closer. "And because I needed someone who would understand what it means to carry a secret that is not yours."
+
+The words hung in the air between them. Yusuf felt the weight of his own secret — the message in his pocket, the man on the breakwater, the decision that had not yet been made. He looked at Amina, and he saw that she was carrying secrets too, that she had been carrying them for a long time, and that she had chosen him to share the weight.
+
+"Why me?" he asked again, softer this time.
+
+She did not answer. She reached out and touched his hand — a brief touch, light as a moth, and then she pulled away. "Because you listen," she said. "Because you see." She paused. "And because, when you looked at me that first night, across the counter, you did not look away."
+
+She turned and walked to the door. She paused with her hand on the latch, and she looked back at him. "The message is not going to wait," she said. "And neither is he. You will have to decide, Yusuf. Soon." She opened the door, and the evening light flooded in, and she was gone.
+
+Yusuf stood in the middle of the room, the smell of cloves still in the air, her words still ringing in his ears. He looked at the message on the table, still sealed, still waiting.
+
+He did not open it.
+
+But he did not put it away, either. He left it on the table, where he could see it, where he could feel its weight every time he passed. And that night, when he went to work the night shift, he carried it in his pocket, next to his heart, and he listened to the valves hum and the atmospherics crackle, and he wondered what it would cost him to keep the secret — and what it would cost him to set it free.
+
 ---
 
 ## About This Book
