@@ -312,6 +312,142 @@ He did not open it.
 
 But he did not put it away, either. He left it on the table, where he could see it, where he could feel its weight every time he passed. And that night, when he went to work the night shift, he carried it in his pocket, next to his heart, and he listened to the valves hum and the atmospherics crackle, and he wondered what it would cost him to keep the secret — and what it would cost him to set it free.
 
+### Chapter 6 — The Hum Between Words
+
+The night shift began the way all night shifts began: with the smell of kerosene and salt, the groan of the harbor, the slow rotation of the ceiling fan that did not cool the room but only pushed the heat from one corner to another. Yusuf sat at his set with the headphones around his neck, the logbook open, the message in his breast pocket like a second heart. He had not opened it. He had not been able to. But he had folded it once more along the original creases, and the wax seal pressed against his chest with every breath, a constant reminder that the world had become heavier.
+
+The ether was quiet. That was the word they used — quiet — as if the air were a room and the frequencies were voices in it. But it was never truly quiet. There was always something: a ship's telegraph ticking out a position report, the faint Morse of a shore station up the coast, the crackle of a storm somewhere out over the Indian Ocean. He listened to it all the way he had listened to his father's ledgers as a child, looking for the gap where the numbers did not add up.
+
+At midnight, Calloway came in to check the log. The senior operator was a pale, thin Englishman with a mustache that looked pasted on, and he moved through the room as if the heat were a personal insult. He glanced at the logbook, at the clock, at Yusuf. "Anything from the convoy?"
+
+"Not since the position report at 2100," Yusuf said. "Atmospherics are heavy."
+
+Calloway nodded. He did not like Yusuf — that was clear — but he did not dislike him either. Yusuf was competent, and in a war that was enough. "Keep listening," he said, and left, the door swinging shut behind him with a click that was swallowed by the hum of the valves.
+
+Yusuf kept listening. The hours passed. The fan turned. The valves glowed. He thought about the man on the breakwater, the old man with the broom, the way the fisherman had looked at him with those pale eyes — not pale, light, like the sky before dawn. And he thought about Amina, the touch of her hand, light as a moth, and the smell of cloves that had lingered in his room long after she was gone.
+
+At 0300, the set crackled. A call sign he did not recognize, very faint, almost lost in the static. He leaned forward, pencil in hand, and began to copy. The code was not the standard naval code. It was not the merchant code. It was something else — a string of groups, five letters each, in a pattern that he had seen only once before, in the message that was now in his pocket.
+
+He copied it anyway. It was his job. But he copied it slowly, deliberately, and when the transmission faded, he did not call it in. He sat with the pencil still in his hand, the paper on the desk in front of him, and he felt the weight of the sealed message against his chest.
+
+He transcribed the groups into the log, as he was supposed to — time, frequency, call sign, text. But he wrote the text in a hand that was slightly different from his own, a little more slanting, a little less precise. He did not know why he did it. It was a small thing, a tiny betrayal of protocol, but it made the message his somehow. Not the office's. His.
+
+When the shift ended, the sky was turning gray over the harbor. He took off the headphones, closed the logbook, and stood. The message was still in his pocket. He walked out into the morning, and the air was cool and smelled of fish and salt and the first light.
+
+He did not go home. He went to the coffee house near the Customs House — not the one where the fisherman had been, but another one, smaller, where the old men played bao and the coffee was thick and bitter. He sat in the corner and ordered, and when the coffee came he placed his hands around the cup and let the warmth seep into his palms. Then he took out the message and put it on the table in front of him. The seal was still intact. The wax was red, the imprint of a signet he did not recognize — a bird, perhaps, or a ship. He traced the outline with his fingertip.
+
+A shadow fell across the table. He looked up. It was not the fisherman. It was not Amina. It was a man he had never seen before, a European in civilian clothes, a linen suit that had been good once and was now frayed at the cuffs. The man sat down across from him without being invited, and he said, in a voice that carried the flat tones of the Cape, "You are the wireless operator at the cable office."
+
+It was not a question.
+
+Yusuf did not answer. He placed his hand over the message, but the man did not look at it. He looked at Yusuf, and his eyes were the color of the sea in winter — gray, cold, patient.
+
+"I have a message for you," the man said. "From a mutual friend. He says you have something that belongs to him. He says you have not opened it, which is wise. He says you will have an opportunity to return it, and that you should take it."
+
+Yusuf felt the message under his hand, the wax seal pressing against his palm. "Who are you?"
+
+"I am the one who pays for the fish that is not eaten," the man said. "And I am the one who will be very unhappy if the message is not returned by sunset."
+
+He stood. He did not wait for a response. He walked out of the coffee house, and the bell over the door clattered behind him, and the old men at the bao board did not look up.
+
+Yusuf sat for a long time. The coffee grew cold. The message lay under his hand, and he could feel it now not as a weight but as a choice — a choice that was being forced on him, faster than he had expected. He thought of Amina. He thought of her hand on his, light as a moth. He thought of her voice: *Because you are the only one in that office who pays attention to what the messages do not say.*
+
+He folded the message and put it back in his pocket. He left the coffee house and walked to the telegraph office, not because he had to — his shift did not start until evening — but because he needed to see the counter, the window, the place where she had stood that first night.
+
+She was there. Of course she was there. It was her shift, the morning shift, and she was at the sorting table, the cables spread in front of her like a fan of white wings. She looked up when he came in, and her face did not change, but her eyes did — a flicker, a question.
+
+He walked to the counter. The clerk behind the counter was a young man he did not know, but Amina was standing at the sorting table, and he did not need to speak to the clerk.
+
+"Amina," he said.
+
+She looked at him. The wariness was back, but underneath it, something else. "You are not on shift," she said.
+
+"I know."
+
+She glanced at the clerk, then at the door. "Come," she said, and she led him through the back, past the rows of shelves stacked with cable forms, past the room where the telegraph sounders chattered like insects, to a small courtyard behind the building where the dhows were moored and the morning light came in off the water.
+
+She turned to face him. "What happened?"
+
+He told her. The coffee house. The man in the linen suit. The words: *I am the one who pays for the fish that is not eaten.*
+
+Amina listened. When he finished, she was silent for a long moment. Then she said, "He is the one who gave the fisherman the message."
+
+"You know him?"
+
+"I know of him." She looked out at the harbor. The dhows were rocking gently, their sails furled, their hulls black with tar. "He runs the couriers. The men who carry things that cannot be written down. He is not a bad man, Yusuf. He is a man who believes in something. The war has made everyone choose." She paused. "I have chosen too."
+
+"You chose to give me the message."
+
+"I chose to give it to someone who would not turn it in. That is not the same as choosing you." She said it without cruelty, but with a kind of honesty that was worse. "I did not know you, Yusuf. I only knew what you were. And what you were — the man who listened at the window, the man who copied the messages and did not ask questions — was the kind of man who might understand." She looked at him. "But you have not opened it. You have not returned it. You are standing here, in the morning light, with the message still in your pocket, and I do not know what you have chosen."
+
+Yusuf reached into his pocket. He took out the message. He held it up, between them, the red seal catching the light.
+
+"I have chosen not to decide," he said. "But the man in the coffee house has decided for me. He says I must return it by sunset."
+
+"And will you?"
+
+He looked at her. The morning light was in her hair, her dark hair that had been a halo in the evening. Her eyes were sharp, wary, waiting.
+
+"I do not know," he said. "I want to know what is in it first."
+
+Amina was silent. Then she said, "Then open it."
+
+The words hung in the air. The harbor was quiet, the sound of water against the pilings, the cry of a gull.
+
+"It is not my secret," he said.
+
+"It is not mine either." She stepped closer. "But I have carried it. I have carried it from the moment I read it — because I did read it, Yusuf. I read it before I brought it to you. I read it because I had to know what I was delivering." She looked at him, and there was something raw in her eyes, something that she had kept hidden behind the counter, behind the uniforms, behind the three languages she was not supposed to know. "I read it, and I understood it, and I brought it to you because I could not carry it alone."
+
+He felt the seal under his thumb. The wax was smooth, cool. The imprint of the bird — or the ship — pressed against his skin.
+
+"What does it say?" he asked.
+
+She did not answer. She looked at him, and he saw the wariness drop away, and he saw the woman who had touched his hand, light as a moth.
+
+"It says that the war is not what we are told. It says that there is a ship coming, and that the ship is not what it seems. And it says that there are men in this port who are waiting for it, and that they are not the men we think they are." She paused. "It says that if the wrong person opens this message, the ship will be lost, and the men who wait for it will be killed, and the secret they carry will sink to the bottom of the sea."
+
+The words settled over him like the heat of the afternoon. He looked at the message in his hand, and he understood that he had been carrying a death warrant without knowing it — a death warrant, or a salvation, or both.
+
+"How do you know it is true?" he asked.
+
+Her eyes were dark, and the morning light could not reach them. "Because I wrote it."
+
+The words were a stone dropped into still water. He felt the ripple through his chest, through his hands, through the paper in his fingers.
+
+"You wrote it?"
+
+"I wrote the code," she said. "I wrote the message that you intercepted. I wrote it for a man who is dead now, a man who was my teacher, a man who taught me three languages and a way of looking at the world that did not fit inside the walls of a telegraph office." She took a breath. "The fisherman was carrying it to me. He did not know what it was. And then you received it, and I was afraid, and I brought it to you, and I thought — I thought if I gave it to you, you would take it to the authorities, and the secret would be safe, and the man who wrote it would not have died for nothing."
+
+Yusuf stared at her. The message was still in his hand, the seal still intact. But he knew now that it was not a message from an unknown sender. It was a message from her. It was her secret, her grief, her warning.
+
+"Why did you not tell me?" he asked.
+
+"Because I did not know if I could trust you." She said it simply, without shame. "I know what a man looks like when he is about to betray you, Yusuf. I have seen it all my life. And when you looked at me across the counter that first night, I did not see it." She paused. "But I have been wrong before."
+
+The gulls cried over the harbor. The dhows rocked. The sun was climbing higher, and the day was getting hot, and somewhere in the port the man in the linen suit was waiting for the message to be returned by sunset.
+
+Yusuf looked at the seal. He looked at Amina. And then, slowly, he pressed his thumb against the wax, and it cracked, and he opened the message.
+
+The paper inside was thin, almost transparent, covered in the same five-letter groups he had copied in the dark. But beneath the groups, in a neat, careful hand, there was a translation — not code, but words. He read them. Then he read them again. The ship was not a ship. It was a man. The men waiting in the port were not waiting for cargo. They were waiting for the man, and the man was carrying something that could end the war — or start a different one. The message named no names, but it did not need to. He knew the harbor. He knew the men. He knew the ship that was due to arrive in three days, flying a neutral flag, carrying a cargo of tea and rubber.
+
+He looked up at Amina. "You wrote this for a dead man."
+
+"I wrote it for the living," she said. "I wrote it so that someone would know what was coming. I wrote it so that someone would have a choice."
+
+He held the paper in his hands. The morning light was strong now, and the shadows were short. The message was open, and the choice was his.
+
+"What do I do with it?" he asked.
+
+Amina looked at him, and in her eyes he saw the wariness and the hope and the fear, all tangled together. "I do not know," she said. "I only know that if you give it to the man in the linen suit, the ship will dock, and the men will be taken, and the secret will be lost. And if you give it to the authorities, the same thing will happen, because the authorities are the men who are waiting." She paused. "And if you do nothing, the ship will dock, and the men will take the secret away, and the war will change — for better or for worse, I do not know."
+
+Yusuf looked down at the paper in his hands. The words were still there, waiting. The sun was climbing. The harbor was alive with the sound of boats and voices and the clang of a buoy.
+
+He folded the message carefully, along the old creases, and put it back in his pocket.
+
+"Then I will have to decide," he said. "By sunset."
+
+She nodded. Neither of them spoke. The gulls cried. The water slapped against the pilings. And in the distance, a ship's horn sounded, low and long, as if the sea itself were waiting for his answer.
+
 ---
 
 ## About This Book
